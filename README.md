@@ -1,0 +1,1 @@
+Zerophase botu için başlangıç
